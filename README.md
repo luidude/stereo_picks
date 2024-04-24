@@ -18,10 +18,11 @@ https://www.amazon.com/WiiM-Mini-Multiroom-Preamplifier-Assistants/dp/B09HC5GRKY
 
 
 # Traditional separate components and speakers:
-* This is the bottom of the Hifi world considers 'Hifi'. From here the jump to next level involves $1K+ receivers and speakers.
+* This is the bottom of what the Hifi world considers 'Hifi'. Just saying you have a Yamaha reciever says your serious about what you put into your ears.
 * This also gives the flexibility to add a record player if also get the "vinyl" bug.
 * These are not surround sound AV systems. You can hook up a TV and get decent stereo sound. Will be 100% better than any soundbar.
-* These are "bookshelf" size speakers. "Towers" and "floor standing" speakers are a whole other rabbit hole I refuse to fall into. 
+* These are "bookshelf" size speakers. "Towers" and "floor standing" speakers are a whole other rabbit hole I refuse to fall into.
+* From here the jump to next level involves $1K+ receivers and speakers. It's a game of diminishing returns. Our old ears probably wouldn't tell the difference.
 
 ## Receivers
 ### Good: YAMAHA R-N303BL
