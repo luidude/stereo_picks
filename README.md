@@ -28,13 +28,14 @@ https://www.amazon.com/WiiM-Mini-Multiroom-Preamplifier-Assistants/dp/B09HC5GRKY
 ## Receivers
 ### Good: YAMAHA R-N303BL
 https://www.amazon.com/Yamaha-R-N303BL-Stereo-Receiver-Bluetooth/dp/B074F246M9?ref_=ast_sto_dp
+
 ### Better: Yamaha R-N600A
 https://www.amazon.com/dp/B0CK8M25R3/?coliid=I3TEFV4VJ11UBV&colid=1BAFCUO5EKDEP&ref_=list_c_wl_lv_ov_lig_dp_it&th=1
 
 ## Speakers
 ### Good: PSB Alpha P5 
 https://www.psbspeakers.com/us/alpha-p5-bookshelf
-OR
+
 ### Good with style: Wharfedale - Denton 80th (Walnut) Walnut 
 * Hard to find since they have been replaced by Denton 85th, which are $500 more now.  
 https://www.amazon.com/dp/B06VT9RW3Z/?coliid=I1OVEEILUR7XD2&colid=1BAFCUO5EKDEP&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it
