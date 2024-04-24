@@ -8,6 +8,7 @@
 
 ### Good: Klipsch The Fives Powered Speaker System 
 * Amazon has them 50% off at the moment.
+
 https://www.amazon.com/dp/B08KYPGC1D/?coliid=I1ZVGZ87JKLXKL&colid=1BAFCUO5EKDEP&ref_=list_c_wl_lv_ov_lig_dp_it&th=1
 
 ### Better: Klipsch The Nines Powered Speaker System ( May be my next purchase to replace living room system. ) Otherwise will get Yamaha traditional separates.
