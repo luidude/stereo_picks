@@ -4,11 +4,13 @@
 * When space and clutter needs to be kept at a minimum. Lots of brands now have All-in-one systems now. Millennials and GenZ don't like to tinker and plug wires in...
 * This also gives the flexibility to add a record player if also get the "vinyl" bug.
 * These are not surround sound AV systems. You can hook up a TV and get good stereo sound. Will be 100% better than any soundbar.
+* You can also add subwoofer if necessary.
 
-### Good:
+### Good: Klipsch The Fives Powered Speaker System 
+* Amazon has them 50% off at the moment.
 https://www.amazon.com/dp/B08KYPGC1D/?coliid=I1ZVGZ87JKLXKL&colid=1BAFCUO5EKDEP&ref_=list_c_wl_lv_ov_lig_dp_it&th=1
 
-### Better: ( May be my next purchase to replace living room system. ) Otherwise will get Yamaha traditional separates.
+### Better: Klipsch The Nines Powered Speaker System ( May be my next purchase to replace living room system. ) Otherwise will get Yamaha traditional separates.
 https://www.amazon.com/dp/B09HC5GRKY/?coliid=I2Z2I92MVRQ6FR&colid=1BAFCUO5EKDEP&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it
 
 ### Streamer is needed to play music with airplay or spotify (also an old Apple TV can do the same for Airplay... )
