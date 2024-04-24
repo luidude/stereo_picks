@@ -39,7 +39,9 @@ OR
 https://www.amazon.com/dp/B06VT9RW3Z/?coliid=I1OVEEILUR7XD2&colid=1BAFCUO5EKDEP&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it
 
 
-### Subwoofer to shake walls:
+### Subwoofer:
+* Will add low end depth to any "bookshelf" speaker. They normally can't go that low. 
+* Can be added to all systems on this page.
 https://www.amazon.com/dp/B07FK2WNW4/ref=sspa_dk_detail_6?pd_rd_i=B07FK2WNW4&pd_rd_w=nPmTu&content-id=amzn1.sym.386c274b-4bfe-4421-9052-a1a56db557ab&pf_rd_p=386c274b-4bfe-4421-9052-a1a56db557ab&pf_rd_r=YV3H5AJJ3KJXG20RWWS2&pd_rd_wg=PtFpl&pd_rd_r=257142bc-ac47-46a8-b043-1942fc144722&s=electronics&sp_csd=d2lkZ2V0TmFtZT1zcF9kZXRhaWxfdGhlbWF0aWM&th=1
 
 
